@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **abhinandanpandey540Egmail.com**
 
-- ⚡ Fun fact **I think i am Noob**
+- ⚡ Fun fact **I think i explored whole internet**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
